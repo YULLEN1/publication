@@ -1,4 +1,5 @@
-# Ленер Юлия Викторовна ![627528349](https://github.com/YULLEN1/publication/assets/154681552/93bc91be-262c-408c-afe0-4546b93724d6)
+# Ленер Юлия Викторовна 
+![627528349](https://github.com/YULLEN1/publication/assets/154681552/93bc91be-262c-408c-afe0-4546b93724d6)
 
 38 лет
 
